@@ -12,7 +12,7 @@ F. D.
 F. G.
 H. A.
 I. S.
-M. C.
+Mariéthoz Cédric
 N. J.
 R. R.
 Schwery Bastian

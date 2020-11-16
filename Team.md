@@ -2,19 +2,19 @@
 
 A. Steve
 B. M.
-D. V.
+D. Valerie
 D. A.
 E. K.
 Favre Lenny
 F. A.
 Fluck Yoann
 F. D.
-F. G.
+F. Gaëtan
 H. A.
 I. S.
-M. C.
+Mariéthoz Cédric
 Nanchen Jean
 R. R.
-S. B.
+Schwery Bastian
 S. R.
 Zumthurm Jimmy

@@ -16,5 +16,5 @@ Mariéthoz Cédric
 N. J.
 R. R.
 Schwery Bastian
-S. R.
+Sierro Romain
 Zumthurm Jimmy

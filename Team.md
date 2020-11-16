@@ -2,7 +2,7 @@
 
 A. Steve
 B. M.
-D. V.
+D. Valerie
 D. A.
 E. K.
 F. L.

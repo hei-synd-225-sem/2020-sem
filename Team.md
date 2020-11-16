@@ -1,6 +1,6 @@
 # 225-Sem I5
 
-A. S.
+A. Steve
 B. M.
 D. V.
 D. A.

@@ -13,7 +13,7 @@ F. G.
 H. A.
 I. S.
 M. C.
-N. J.
+Nanchen Jean
 R. R.
 S. B.
 S. R.

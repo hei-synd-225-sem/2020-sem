@@ -3,7 +3,7 @@
 A. S.
 B. M.
 D. V.
-D. A.
+Dufrenne Antoine
 E. K.
 F. L.
 F. A.

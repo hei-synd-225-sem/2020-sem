@@ -10,7 +10,7 @@ F. A.
 Fluck Yoann
 F. D.
 F. Gaëtan
-H. A.
+Heritier Aurelien
 I. S.
 Mariéthoz Cédric
 N. J.

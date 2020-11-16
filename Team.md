@@ -13,7 +13,7 @@ F. Gaëtan
 H. A.
 I. S.
 Mariéthoz Cédric
-N. J.
+Nanchen Jean
 Rashit Rashiti
 Schwery Bastian
 Sierro Romain

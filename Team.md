@@ -3,7 +3,7 @@
 A. Steve
 B. M.
 D. V.
-D. A.
+Dufrenne Antoine
 E. K.
 Favre Lenny
 F. A.

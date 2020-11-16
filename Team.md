@@ -14,7 +14,7 @@ H. A.
 I. S.
 Mariéthoz Cédric
 N. J.
-R. R.
+Rashit Rashiti
 Schwery Bastian
 Sierro Romain
 Zumthurm Jimmy

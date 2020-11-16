@@ -1,20 +1,20 @@
 # 225-Sem I5
 
-A. S.
+A. Steve
 B. M.
-D. V.
+D. Valerie
 D. A.
-E. K.
-F. L.
+Ecoeur Kenny
+Favre Lenny
 F. A.
-F. Y.
+Fluck Yoann
 F. D.
-F. G.
+F. Gaëtan
 H. A.
 I. S.
-M. C.
+Mariéthoz Cédric
 N. J.
 Rashit Rashiti
-S. B.
-S. R.
-Z. J.
+Schwery Bastian
+Sierro Romain
+Zumthurm Jimmy

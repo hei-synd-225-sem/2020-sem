@@ -9,7 +9,7 @@ Favre Lenny
 F. A.
 Fluck Yoann
 F. D.
-F. G.
+F. Gaëtan
 H. A.
 I. S.
 Mariéthoz Cédric

@@ -15,6 +15,6 @@ I. S.
 M. C.
 N. J.
 R. R.
-S. B.
+Schwery Bastian
 S. R.
 Z. J.

@@ -4,7 +4,7 @@ A. Steve
 B. M.
 D. Valerie
 D. A.
-E. K.
+Ecoeur Kenny
 Favre Lenny
 F. A.
 Fluck Yoann

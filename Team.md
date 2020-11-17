@@ -8,7 +8,7 @@ E. K.
 Favre Lenny
 F. A.
 Fluck Yoann
-FORGIONE. DAVID.
+Forgione David
 F. G.
 H. A.
 I. S.

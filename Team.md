@@ -11,7 +11,7 @@ Fluck Yoann
 F. D.
 F. Gaëtan
 Heritier Aurelien
-I. S.
+Ieri Sylvana
 Mariéthoz Cédric
 N. J.
 Rashit Rashiti

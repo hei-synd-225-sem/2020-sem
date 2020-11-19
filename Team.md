@@ -2,19 +2,19 @@
 
 A. Steve
 B. M.
-D. V.
+D. Valerie
 D. A.
-E. K.
+Ecoeur Kenny
 Favre Lenny
 F. A.
 Fluck Yoann
 Forgione David
-F. G.
+F. Gaëtan
 H. A.
 I. S.
-M. C.
+Mariéthoz Cédric
 N. J.
-R. R.
-S. B.
-S. R.
+Rashit Rashiti
+Schwery Bastian
+Sierro Romain
 Zumthurm Jimmy

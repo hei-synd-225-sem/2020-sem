@@ -10,8 +10,8 @@ F. A.
 Fluck Yoann
 Forgione David
 F. Gaëtan
-H. A.
-I. S.
+Heritier Aurelien
+Ieri Sylvana
 Mariéthoz Cédric
 N. J.
 Rashit Rashiti

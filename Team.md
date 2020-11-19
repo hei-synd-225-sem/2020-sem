@@ -4,7 +4,7 @@ A. Steve
 Biollaz Maxime
 D. Valerie
 D. A.
-E. K.
+Ecoeur Kenny
 Favre Lenny
 F. A.
 Fluck Yoann
@@ -14,7 +14,7 @@ H. A.
 I. S.
 Mariéthoz Cédric
 N. J.
-R. R.
+Rashit Rashiti
 Schwery Bastian
-S. R.
+Sierro Romain
 Zumthurm Jimmy

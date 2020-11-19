@@ -1,7 +1,7 @@
 # 225-Sem I5
 
 A. Steve
-B. M.
+Biollaz Maxime
 D. Valerie
 D. A.
 Ecoeur Kenny

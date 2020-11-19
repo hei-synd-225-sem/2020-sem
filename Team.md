@@ -13,7 +13,7 @@ F. Gaëtan
 Heritier Aurelien
 Ieri Sylvana
 Mariéthoz Cédric
-N. J.
+Nanchen Jean
 Rashit Rashiti
 Schwery Bastian
 Sierro Romain
